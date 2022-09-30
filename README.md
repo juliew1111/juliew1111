@@ -1,4 +1,4 @@
-- 🤓 Business grad transforming into a geek 
+- 🤓 Business grad undergoing a geek metamorphosis
 - 🎓 Completing my MSBA @ Santa Clara University
 - 🧠 Aiming to learn more about neural networks
 - 📫 Send me a message: jweber2@scu.edu, www.linkedin.com/in/julie-weber1
